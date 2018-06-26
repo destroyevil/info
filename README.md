@@ -2,6 +2,8 @@
 
 # 本应不想起冲突可当事人态度十分恶劣 遂练起社工
 
+http://tieba.baidu.com/p/5768433812
+
 山东省德州市下辖县级市 禹城 胜利街道
 
 生日:1990年11月6日
@@ -28,3 +30,6 @@ QQ:63742458
 
 看过的书:人性的弱点
 
+![image](https://github.com/destroyevil/info/raw/master/p1.jpg)
+![image](https://github.com/destroyevil/info/raw/master/p2.jpg)
+![image](https://github.com/destroyevil/info/raw/master/p3.jpg)
